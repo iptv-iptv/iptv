@@ -1,8 +1,8 @@
 ### <div align="center">Contact Details</div>  
   <br>
 
-[iptv](https://www.iptvbox.pro)  
+[iptv](https://www.iptv.cam)  
   
-[iptv tavsiye](https://www.iptvbox.pro)  
+[iptv tavsiye](https://www.iptv.cam)  
 
-[kaliteli iptv](https://www.iptvbox.pro)  
+[kaliteli iptv](https://www.iptv.cam)  
